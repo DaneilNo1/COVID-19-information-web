@@ -1,2 +1,2 @@
 # COVID-19-information-web
-## Welcome! You little fucking genius
+## Welcome! You little fucking genius 🛫
